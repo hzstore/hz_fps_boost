@@ -1,3 +1,6 @@
+DOWNLOAD FREE POR TEBEX
+https://hz-store.tebex.io/package/6069805
+
 # hz_fps_boost
 Menu para ganhos significativos de FPS
 
